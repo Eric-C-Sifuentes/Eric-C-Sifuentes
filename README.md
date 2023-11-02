@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Eric-C-Sifuentes
+- 👀 I’m interested in music and video games.
+- 🌱 I’m currently pursuing a degree in ELectrical Engineering at St. Mary's University.
+- 📫 You can reach me at eric.c.sifuentes@gmail.com and my LinkedIn is Eric C Sifuentes.
